@@ -1,0 +1,1 @@
+# imglobal-never-pay
